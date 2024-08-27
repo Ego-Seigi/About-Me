@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... coding
 - 📫 How to reach me ... bd44616@gmail.com
 - 😄 Pronouns: ... attack helicopter
-- ⚡ Fun fact: ... I prefer b00bs over a$$
+- ⚡ Fun fact: ... I love caffeine ... lots of caffeine
 
 <!---
 Ego-Seigi/Ego-Seigi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
